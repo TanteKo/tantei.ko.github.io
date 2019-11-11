@@ -1,1 +1,1 @@
-# tantei.ko.github.io
+# tanteiko.github.io
